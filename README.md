@@ -1,0 +1,2 @@
+# C0741746_MidTerm_MAD3125F2018.zip
+AndroidElectricity
